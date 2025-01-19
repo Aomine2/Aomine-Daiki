@@ -1,1 +1,3 @@
 # Aomine-Daiki
+can I court you? I promise I'll give you all my attention an I'm always here to help with all your problems you face I'll do everything for you just give me a chance to court you I may not the best boy in this world but i surely promise to you i will take care of you and love you no matter what happen i just wanna say i really really like you i know im not perfect boy for you and im not your idea man but i will do my best i will do anything for you to make you happy and be the happiest girl.
+im speechlessness no words can explain how i feelabout you and no more words to describe how much i love you every time i receive massage from you i feel a mixture of joy i will treat you that way you deserve to be treated.
